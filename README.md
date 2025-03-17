@@ -1,1 +1,1 @@
-# -E2-88-9E
+List of reousrces introducing various topics
